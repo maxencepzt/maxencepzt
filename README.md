@@ -1,0 +1,3 @@
+- 👋 Hi, I’m maxencepzt
+- 👀 I’m interested in IT and audiovisual
+- 🌱 I’m currently learning IT at Reims
